@@ -1,4 +1,3 @@
-#
 Professional Highlights
 Acting in Theater Productions
 Dancer & Mr. Fox / Roasted Nut, Three Performances, Orcas Center, Nov 2019
